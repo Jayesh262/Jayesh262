@@ -6,4 +6,4 @@
 
 ### Contact Me 📧
 * By Email: asjayesh26022005@gmail.com
-* On LinkedIn: [Jawahar A S](https://www.linkedin.com/in/jayesh-a-s/)
+* On LinkedIn: [Jayesh A S](https://www.linkedin.com/in/jayesh-a-s/)
